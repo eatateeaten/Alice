@@ -1,5 +1,5 @@
 Alice my girl. 
-Alice wants to go to parties. 
+Alice wants to go to places. 
 the dudes are big and scary.
 Wabbit says I'm small and nimble I can take you to places 
 Wabbit goes to places 
